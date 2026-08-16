@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MOMY971121MMCRRN00
+MOMY971121MMCRRN00
